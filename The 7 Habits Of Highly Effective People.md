@@ -77,5 +77,24 @@ Abundance mentality, "There's is enough out there for everyone".
 From the foundation of character, we build relationships. The emotional bank account.
 
 ## Habit 5, Seek First To Understand, Then To Be Understood
+Habit 5 is about listening and trying to understand thoroughly with the person you're communicating with.
 
+### Empathic listenin
+There's a huge difference between listening to reply and listening to understand, make sure to focus on understanding rather than replying. 
+
+### Diagnose before you prescribe
+It might take a lot of time to really understand someone, you wouldn't want the doctor to make a prescription without really understanding your symptoms?
+
+### Fourth stage empathic listening
+Don't give a person your glasses when they come to you! They might have another problem than you, and giving them your glasses would make them see even less and probably would become frustrated on you.
+
+* Try to understand
+* Reflect on feelings, rephrase
+
+When you finaly are sure you understand someone, then seek to be understood! Not the other way around.
+
+## Habit 6, Synergize
+Being greater than the sum of its parts.
+
+Company mission statement with the help of all employees.
 
