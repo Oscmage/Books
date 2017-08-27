@@ -98,3 +98,9 @@ Being greater than the sum of its parts.
 
 Company mission statement with the help of all employees.
 
+## Habit 7, Sharpen The Saw, Principles of Balanced Self-Renewal
+Sharping your own saw, yourself!
+
+P/PC yourself, physically (excersie, nutrition), Mental (Reading, planning, writing), Spiritual (Value Clarification & Commitment, Meditation) and Social/Emotional (Service, Empathy, Synergy)
+
+
