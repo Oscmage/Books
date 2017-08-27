@@ -1,2 +1,2 @@
 # Books
-This repo contains summaries and the key take aways from some of the books I've read.
+This repo contains summaries and the key take aways from some of the books I've read. It's ment for my personal use since I've left out some content that is trivial for me. This means that reading these summaries might not make a lot of sense to you..
